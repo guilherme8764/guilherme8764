@@ -1,4 +1,4 @@
-### Bem vindo au meu perfil 💙
+### Bem vindo ao meu perfil 💙
 
 -Sou estudante do Alura 
 
